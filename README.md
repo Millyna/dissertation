@@ -1,2 +1,2 @@
 # dissertation
-full copy of my dissertation receiving an overall grade of 87%
+full copy of my dissertation receiving an overall grade of 83%
